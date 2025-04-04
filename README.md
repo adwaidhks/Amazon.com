@@ -1,2 +1,0 @@
-"# Amazon.com" 
-"# Amazon.com" 
